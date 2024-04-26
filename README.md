@@ -1,5 +1,5 @@
-legit , 09cm
-- .gg/spiritt
+thug fr , kss
+- 
 
   > codes in python / js
   > g
